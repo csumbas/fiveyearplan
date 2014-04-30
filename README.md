@@ -1,0 +1,1 @@
+This is the strategic plan for the Associated Students of California State University, Monterey Bay for 2014-2018.
